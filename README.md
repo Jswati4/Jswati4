@@ -2,7 +2,7 @@
 
 ​💻 Student application developer and designer in tech <br/>
 🖌️​ Learning UX design (that's what interests me most in the tech field - user interface) <br/>
-🛠️ In my hobby, I edit images and photos according to a trend for example or a cartoon <br/>
+🛠️ In my hobby, I edit images and photos according to a trend or a cartoon for example <br/>
 
 
 ## 🌐 Socials:
